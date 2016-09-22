@@ -12,7 +12,7 @@ Excerpted in Cecilia Brightwell, *The Memorials of Amelia Opie. Selected and Arr
 
 My dear friend,
 
-*** John, I suppose, informed you he called on us; he promised to come and dine with us, but has
+*Excerpt begins* John, I suppose, informed you he called on us; he promised to come and dine with us, but has
 not been since; and as I have been tied by the foot ever since the day after Christmas day, from having Wor t1g et bound shoe, which made a hole in my heel, I do not regret
 his false-heartedness, as when he does come we are to go church and meeting hunting. 
 
@@ -21,7 +21,7 @@ Apropos, I was very sorry to hear of your husband's severe return of gout, but a
 What the friendships of dissipated women are, Mrs. --- going to a ball, while poor H. T. was dying, | sufficiently proves. I remember with satisfaction that II saw her, and shook hands with her at the November ball. Indeed she had a *heart*; and I can't help recollecting that when I had the scarlet fever she called on me every day, regardless of danger, and sat at the foot of my bed. Besides, she was the friend of twenty years, and the companion of my childhood, and I feel the older I grow, the more tenderly I cling to the scenes, and recollections, and companions, of my early hours. When I now look at Mr. Bruckner's black cap, my memory gets astride on the tassel of it, and off she gallops at a very pleasant rate; wooden desks, green bags,
 blotted books, inked hands, faces, and gowns, rise in array before me. I see Mrs. Beecroft (Miss Dixon I should say) with her plump good-humoured face, laughing till she loses her eyes, and shakes the whole form; but I must own, the most welcome objects that the hoofs of memory's hobby-horse kick up, are the great B.'s, or bons, on my exercises I do not choose to remember how often I was marked for being *idle.*
 
-*** So you have had riots. I am glad they are over. Mrs. Adair called on me this morning, and she tells me that Charles Harvey was terribly alarmed after he had committed Col. Montgomery. A fine idea this gives one of the state of a town, where a man is alarmed at having done his duty
+*Excerpt begins* So you have had riots. I am glad they are over. Mrs. Adair called on me this morning, and she tells me that Charles Harvey was terribly alarmed after he had committed Col. Montgomery. A fine idea this gives one of the state of a town, where a man is alarmed at having done his duty
 I am very much afraid my spouse will not live long; he has gotten a fit of tidyness on him; and yesterday evening and this evening, he has employed himself in putting his painting-room to rights. This confirms what I said to him the other day; that almost every man was beau and sloven, at some time of his life. Charles Fox once wore pink heels; now he has an unpowdered crop. And I expect that as my husband has been a sloven hitherto, he will be a *beau* in future; for he is so pleased with his handy works, and capers about, and says, "look there how neat and how prettily I have disposed the things! Did you ever see the like?" Certainly I never did, where he was, before. Oh he will certainly be a *beau* in time. Past ten o'clock! I must now say farewell; but let me own that I missed you terribly when I was ill. I have no *female* friend and neighbour; and men are not the thing on such occasions. Besides, you, on *all* occasions, would be the female neighbour I should choose. Love to your spouse. Write soon, and God bless you.
   
  
