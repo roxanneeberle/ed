@@ -6,7 +6,6 @@ publication-date: 1800-01-27
 source: "Brightwell, Cecilia. The Memorials of the Life of Amelia Opie. London: Longman, Brown, and Co., 1854. Print."
 ---
 
-# Letter from Amelia Opie to Susannah Taylor
 Excerpted in Cecilia Brightwell, *The Memorials of Amelia Opie. Selected and Arranged from her Letters, Diaries, and other Manuscripts.* London: London, Brown, and Co., 1854.
 
 27th of January, 1800. 
